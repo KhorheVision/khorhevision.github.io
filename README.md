@@ -1,1 +1,0 @@
-# khorhevision.github.io
